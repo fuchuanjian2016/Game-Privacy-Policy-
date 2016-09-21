@@ -61,3 +61,6 @@ Feel free to contact us if you have any further questions or concerns.
 
 
 Your Consent: By using our site or applications, you consent to our online privacy policy.
+
+游戏代理商： Fu Chuanjian
+游戏开发商： Lin Chuannai
